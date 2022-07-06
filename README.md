@@ -1,3 +1,3 @@
 # segunda_actividad
-karen gomez
+karen gomez soto
 
